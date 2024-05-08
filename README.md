@@ -1,1 +1,1 @@
-Answres for the endsem assingnment
+Answers for the endsem assingnment
